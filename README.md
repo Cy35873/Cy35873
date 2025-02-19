@@ -5,4 +5,5 @@ I know some amount of the following programming languages:
 - CSS
 - HTML
 - LaTeX (if that counts)
-i like computers I think
+
+i like computers I think 🥇💯🩹✈️⚗️
